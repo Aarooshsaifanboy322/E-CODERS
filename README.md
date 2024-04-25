@@ -21,4 +21,5 @@ Me: Uhh, yeah so, uhh, about the team we are officially Ethical hackers. *Whispe
 <br>
 Safwan: *I am sorry, I forgot this speech!*
 ![EthicalCoders](https://github.com/Aarooshsaifanboy322/E-CODERS/assets/164038746/db1d4a08-1d92-4f0b-a8d2-be539f250aed)
+Website logo:
 ![(Full) EthicalCoders](https://github.com/Aarooshsaifanboy322/E-CODERS/assets/164038746/97b3888c-b2dc-42b8-9147-b604ce78dfbf)
